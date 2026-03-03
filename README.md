@@ -1,0 +1,51 @@
+# ピーナッツくん – グミ超うめぇ
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+※hook
+グミ超うめぇ
+グミグミマジ超うめぇ
+This is my favorite な idol
+Colorfulに染まってくよ最高
+Pocketの中のfucking相棒
+グミ fucking fucking fucking
+超うめぇ
+グミ食べると
+ぶっ飛んでくよ
+マジでジューシーなんだ
+グミ大好きで
+食べすぎたよ
+むし歯なってんだ
+首傾げて
+食べてみてみ
+ストレートネックなるよ
+最後の晩餐もグミ食べたの誰かで
+揉めてるキリスト
+着色料がつくるrainbow
+ハリボーベアー is my friend
+I miss you ひもQ
+消えた謎の実 I’m sorry can’t save you
+あの時 心に決めた
+やっ時がきた
+Never make more crying gummy
+消費活動 damn
+消化活動 damn
+排泄活動 damn
+I don’t need a リーン
+I don’t need a bull
+第3のフルーツ
+キャバクラとかでも配れよビッチ
+知らないけど
+アラブじゃ高級食材グミ
+フカヒレキャビアにグミ
+ぐるナイとかにも出てくるべきだろグミ
+グミは君を裏切らないよ
+封を切れば 香るFavor
+変わる世界
+口ん中 bounce gummy
+とびきりジューシー
+Don’t steal my gummy
+神のめぐみ
+※hook
+```
