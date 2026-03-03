@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "グミ超うめぇ",
+  "base_artist": "ピーナッツくん",
+  "createdAt": "2026-03-03T15:39:09.048277Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "グミ超うめぇ",
+      "artist": "ピーナッツくん",
+      "has_synced": false,
+      "path": "select/pl_01_グミ超うめぇ_ピーナッツくん.txt"
+    }
+  ]
+}
